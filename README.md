@@ -1,0 +1,1 @@
+# 18-782-introduction-to-arithmetic-geometry-fall-2013_0f146fba10b04532a47d3adc3a589cf1
